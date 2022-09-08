@@ -51,6 +51,6 @@ Email: spirit.nrg@outlook.com<br>
 ---
 
 ### **SPOKEN LANGUAGES:**
-* English – B1 (intermediate)<br>
-* Ukrainian – native<br>
-* Russian - fluently<br>
+* *English* – B1 (intermediate)<br>
+* *Ukrainian* – native<br>
+* *Russian* - fluently<br>
